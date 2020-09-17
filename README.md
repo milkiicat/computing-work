@@ -1,1 +1,1 @@
-Hello! :) Ignore the teacher's day folder.
+Hello! :) Ignore the story folder.
